@@ -218,7 +218,7 @@ Yes I'm gonna win
 
 And I'll light the fuse
 And I'll never lose
-And I chose to survive
+And I choose to survive
 Whatever it takes
 
 You won't pull ahead
@@ -513,7 +513,7 @@ You're animal, don't take anything less
 We're animals, we're out of control
 
 Are you worth your weight in gold?
-Going once, going twice, sold!It's all about that cold hard cash, hon
+Going once, going twice, sold! It's all about that cold hard cash, hon
 
 Aren't you lonely?
 Up there in utopia
@@ -981,3 +981,49 @@ So scattered and lost
 
 Don't try to hide it
 Don't tell me it's not there
+
+I'ma do, just what I want
+Looking ahead, no turning back
+People told me, slow my roll
+I'm screaming out, fuck that
+I'm screaming out, fuck that
+I'm screaming out, fuck that
+Fuck that, fuck that
+Fuck that, fuck that
+
+Tell me what you know about dreamin', dreamin'
+You don't really know about nothin', nothin'
+
+Tell me what you know about night terrors, nothin'
+
+You don't really care about the trials of tomorrow
+Rather lay awake in the bed full of sorrow
+
+Ohh ohh ohh, I guess we'll never know heaven only knows
+What we need to know, where we need to go
+
+I'm gonna fight 'em off
+A seven-nation army couldn't hold me back
+
+By the skin of my teeth, by the sweat of my brow
+I made it through, but you don't know how
+When it's a matter of life or death
+I'll drag it out so don't hold your breath
+
+Put me in danger and I feel no fear
+Take something from me and I'll shed no tears
+I'm self-contained and I got what I need
+You have to work hard just to see me bleed
+
+Sliding down on a slippery slope
+A ringside seat and you'll earn your robes
+
+I have to confess that I feel no shame
+I'm gonna have fun playing out this game
+
+Where's the intelligence that comes with age?
+I don't need religion or a self-help sage
+
+You and me are the same, we don't know or care who's to blame
+
+And we know that there's no one we can trust. Our ancient heroes, they are turning to dust
