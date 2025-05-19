@@ -1,3 +1,0 @@
-{{ $verses := resources.Get "js/verses.js" | js.Build }}
-
-<script type="text/javascript" src="{{ $verses.RelPermalink }}"></script>

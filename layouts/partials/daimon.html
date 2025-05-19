@@ -1,0 +1,3 @@
+{{ $daimon := resources.Get "js/daimon.js" | js.Build }}
+
+<script type="text/javascript" src="{{ $daimon.RelPermalink }}"></script>

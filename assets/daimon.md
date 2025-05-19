@@ -35,6 +35,11 @@ Can you see that I am needing, begging for so much more that you could ever give
 
 She burns like the sun and I can't look away
 
+But in all chaos there is calculation
+Dropping glasses just to hear them break
+
+No-one round here's good at keeping their eyes closed
+
 We gladiate, but I guess we're really fighting ourselves
 Roughing up our minds so we're ready when the kill time comes
 Wide awake in bed, words in my brain, "Secretly you love this, do you even wanna go free?"
@@ -56,6 +61,8 @@ And I've been in trouble
 
 Paradise comes at a price that I am not prepared to pay
 Take off your disguise, I know that underneath is me
+
+What are they for? They grow up and break up the rules you loved
 
 And the truth's unwinding
 Scraping away at my mind
@@ -88,7 +95,14 @@ I'm trying to
 She tells me that the world is up to you
 And if I knew this love will do
 
+Can it be that there's some sort of error?
+Hard to stop the surmounting terror
+Is it really the end, not some crazy dream?
+
 Tears flow but why I am crying?
+After all, I'm not afraid of dying
+Don't I believe that there never is an end?
+
 And though the end is near, I'm not sorry
 Catch my soul ‘cause it's willing to fly away
 Mark my words please believe my soul lives on
@@ -105,6 +119,9 @@ You are to blame for all this life you'll lose
 That's the price you pay
 Leave behind your heart and cast away
 Just another product of today
+
+Oh, we are the youth
+Cut until it bleeds inside a world without the peace, facing a bit of the truth, the truth
 
 Took an oath by the blood of my hand, won't break it
 
@@ -357,6 +374,10 @@ Sing for absolution, I will be singing, and falling from your grace
 Declare this an emergency
 Come on and spread a sense of urgency
 
+You're so happy now, burning the candle at both ends
+
+Breathe in deep
+
 Future self forgive this mess you waste 20 years and wind up alone and demented
 
 It's like we're going through the motions of a scripted destiny
@@ -483,7 +504,8 @@ How does it feel now, to watch it burn?
 
 Take all you need and I'll compensate your greed with broken hearts
 
-I lay in silence but silence talks it tells me heaven is no closer than it was
+I weigh the water I feel it all, I ask myself a million questions in the dark
+I lay in silence but silence talks, it tells me heaven is no closer than it was
 
 Everything that I've been mixin', all mixed up inside
 
@@ -502,7 +524,7 @@ I'm worse at what I do best and for this gift I feel blessed
 
 It's okay to eat fish ‘cause they don't have any feelings
 
-Moral codes update three times a year
+Moral code update three times a year
 I'll never ask for forgiveness
 I come with God as my witness
 I pray he'll wash my hands
@@ -651,6 +673,10 @@ I'm a new school vibe with an old soul
 
 Feeling so tall I could give a high five to the pilot
 
+Blindfold on me I still got the most vision
+
+I got the bag I'm back just to double it
+
 It's my birthday
 NO IT'S NOT
 But I still look good though
@@ -749,6 +775,9 @@ Try to find that inner strength and just pull that shit out of you
 And get that motivation to not give up
 And not be a quitter
 No matter how bad you wanna just fall flat on your face and collapse
+
+Will Smith don't gotta cuss in his raps to sell records
+Well I do
 
 'Cause I'm Slim Shady, yes, I'm the real Shady
 All you other Slim Shadys are just imitating
@@ -927,6 +956,9 @@ You're all alone, too much rejection
 We have what you need just reach out and touch
 We can save you
 
+Cover your tracks, we know what's best for you
+You’ve bitten off much more than you can chew
+
 There are figures on earth that advance how we think and take us higher
 But I look up to the clowns, paid crazed and acclaimed and I aspire
 
@@ -1027,3 +1059,176 @@ I don't need religion or a self-help sage
 You and me are the same, we don't know or care who's to blame
 
 And we know that there's no one we can trust. Our ancient heroes, they are turning to dust
+
+I left alone, my mind was blank
+I needed time to think
+To get the memories from my mind
+What did I see? Can I believe?
+That what I saw that night was real and not just fantasy?
+
+This can't go on, I must inform the law
+Can this still be real, or just some crazy dream?
+
+Already pulling me in
+Already under my skin
+And I know exactly how this ends
+
+'Cause there's a fire under the altar
+I keep on lyin' to, I keep on lyin' to
+
+Don't know why I'm hoping, so fucking naive
+Falling for the promise of the emptiness machine
+
+Don't know why I'm hoping for what I won't receive
+
+I'm living for the weekend
+I'm screaming like a madman
+
+I'll carry the burden and take the strain
+
+I've got no right to win, I'm just caught up in all the battles
+
+Hold your breath
+And listen
+
+I am a world before I am a man
+I was a creature before I could stand
+I will remember before I forget
+Before I forget that
+
+Too young, young
+Soulless is everywhere
+
+Destroy the spineless, show me it's real
+
+Making the same mistakes again
+Making the same mistakes again
+
+So I'll love whatever you become
+And forget the reckless things we've done
+
+You
+Really believe
+We can survive all of this?
+
+We're at death's door
+Another world war
+Wildfires and earthquakes I foresaw
+A life in crisis
+Mutated virus
+Tsunamis of hate are gonna drown us
+
+True
+Just when you think
+You are safe and secure
+You'll forget what you need to remember
+Living in peace
+But you're living a lie
+The game is rigged
+
+Hole up
+Stockpile
+Hoard up
+
+When our eyes meet
+Time disappears
+Turn the clock back
+Forget the years
+
+I see it now
+Everything that we've been through
+Didn't have to end
+
+I'm haunted
+You're a ghost from the past
+All I want it
+Was for things to last
+
+You and I
+Were such a beautiful memory
+
+You look a little bit like
+Somebody I knew once
+Somebody who lost us
+Somebody I used to love
+
+Love, it will get you nowhere
+You're on your own
+Lost in the wild
+
+And ask no questions
+
+Your mind is just a program
+And I'm the virus
+I'm changing the station
+
+Life burns
+
+Run from what's comfortable. Forget safety. Live where you fear to live. Destroy your reputation. Be notorious. I have tried prudent planning long enough. From now on I'll be mad.
+
+But I ain't finished
+I'm devoted
+And you know it
+And you know it
+
+They say I'm possessed, it's an omen
+
+We often watch TV to escape and to relax. We do it partly because it’s easy; we don’t have to do anything except change the channel. TV may be beneficial in some ways, but helping us to live a life of significance isn’t one of them.
+
+Karma police
+Arrest this man
+He talks in maths
+He buzzes like a fridge
+He's like a detuned radio
+
+For a minute there I lost myself
+
+The passing of traditional beliefs is a dangerous time for any culture.
+
+Caught between unyielding laws of nature and capricious events beyond reckoning, what can we do but go along for the ride? A resigned fatalism seems to be the most rational response to life. In practice this means giving up responsibility, reflection, and choice.
+
+Those who expect priests to be consistently saintly, soldiers brave, mothers always self-sacrificing, and so on, are due for some serious disappointment.
+
+Whereas if one starts from the assumption that humans are basically weak and disoriented creatures thrown by chance into a leading role at the center of the planetary stage, without a script and without rehearsal, then the picture of what we have accomplished is not so bleak.
+
+That something might be inherently wrong with the way the human mind functions has been suggested in many different ways in different historical periods, depending on the symbolic vocabulary of the age.
+
+There is no way to get at reality through words, all generalizations are suspect, and the sharing of meanings between minds is an illusion.
+
+Rational thought works well within the boundaries of rational “games” such as chess, geometry, or calculus, all of which have clear rules and limited assumptions.
+
+The future, however, is not constrained by rules and predictable outcomes. We need to cultivate more than logic if we want to thrive in it. We must foster intuition to anticipate changes before they occur; empathy to understand that which cannot be clearly expressed; wisdom to see the connection between apparently unrelated events; and creativity to discover new ways of defining problems, new rules that will make it possible to adapt to the unexpected.
+
+It is dangerous to take too seriously the picture of the world as painted by one’s culture.
+
+The mere act of watching TV has different consequences for the mind from reading or listening to music, and very different from those that follow on more active forms of leisure. Television the world over seems to have the following effects on viewers: It makes them feel very relaxed, but also significantly less active, alert, mentally focused, satisfied, or creative compared with almost anything else they could be doing. At the same time, in every culture where TV is accessible, people watch it more than they pursue any other activity in their free time. Television is a dramatic example of a meme that invades the mind and reproduces there without concern for the well-being of its host. Like drugs, watching TV initially provides a positive experience.
+
+If we don’t take charge and use them for our own goals, they do have a tendency to take over and use us for their own ends. Of course memes don’t know what their ends are, but most of the time we don’t know what ours are, either.
+
+All major world religions, all synthesizing philosophies, despite the great superficial differences due to accidental historical developments, agree that unless a person learns to control consciousness, he or she cannot achieve harmony with the cosmos, but will forever remain prey to the random forces of biology and society.
+
+Neither excessive humility nor truculent bombast will serve us well in the future.
+
+If there is to be a history, our minds must be prepared to make it.
+
+¿Dónde esta tu honor basura?
+
+This is war with your creator
+
+I guess every superhero needs his theme music
+
+For my theme song
+
+Kill your prayers for love and peace, you’ll wake the thought police
+
+But it should have been right to let our hearts ignite
+
+They'll kick you, then they'll beat you
+Then they'll tell you it's fair
+
+I’m sure I used to be so free
+
+And their necks crane
+As they turn to pray for rain
+
+Yo lo siento, pero el flow no está a la venta

@@ -22,14 +22,14 @@ func main() {
 		log.Fatalf("failed to read file: %v", err)
 	}
 
-	versesSource := strings.Split(string(data), "\n\n")
-	verses := []string{}
+	daimonSource := strings.Split(string(data), "\n\n")
+	daimon := []string{}
 
-	for _, s := range versesSource {
-		verses = append(verses, strings.TrimSpace(s))
+	for _, s := range daimonSource {
+		daimon = append(daimon, strings.TrimSpace(s))
 	}
 
-	json, err := json.MarshalIndent(verses, "", " ")
+	json, err := json.MarshalIndent(daimon, "", " ")
 	if err != nil {
 		log.Fatalf("failed to marshal json: %v", err)
 	}
