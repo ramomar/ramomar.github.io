@@ -39,9 +39,14 @@ Elementos característicos en orden de relevancia:
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/lrMKKcaQOOg?si=_QVG06JGttywHv5q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-#### YOUR LOVE IS MY DRUG - Xxtristanxo
+#### YOUR LOVE IS MY DRUG (Xxtristanxo Remix) - Ke$ha
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/3B4FGKtJaZI?si=3BPshhVdT43GBhuJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+
+#### Black Eyes Peas - Rock That Body (NALYRO Remix)
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B74_wyh12ig?si=5Uf--w7JMABnkkIS" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 #### White Wine & Adderall - Chainsmokers & Beau Nox
 
