@@ -6,7 +6,7 @@ date: 2025-08-14
 
  Últimamente he estado recopilando canciones que son lo suficientemente similares para agruparlas en un género que suena a UKG pero no es UKG. Según lo que he leído, el nombre del género es algo así como Speed/Garage House, pero no he encontrado respuesta definitiva ni productores que lo tengan como género preferido.
  
- En 2021, en medio de la pandemia, hubo mucha producción de Slap house y hasta hace poco me enteré del nombre “oficial”. Me perdí de mucho durante su tiempo y esta vez no quiero estar en la misma situación, por lo que ahora le estoy dando un poco más de intención a mi investigación.
+ En 2021, en medio de la pandemia, hubo mucha producción de Slap House y hasta hace poco me enteré del nombre “oficial”. Me perdí de mucho durante su tiempo y esta vez no quiero estar en la misma situación, por lo que ahora le estoy dando un poco más de intención a mi investigación.
 
 Me interesa por qué es un género con bastante energía y da para arriba en cualquier situación, ya sea haciendo ejercicio, trabajando, o incluso contenido de redes sociales 😂
 
