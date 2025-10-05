@@ -4,7 +4,7 @@ description: "Alucinando con una LLM"
 date: 2025-10-04
 ---
 
-Cansado de leer libros informativos, decidí tomar una copia de Project Hail Mary, ciencia ficción porque quería estar inspirado.
+Hastiado de los libros informativos, decidí tomar una copia de Project Hail Mary, ciencia ficción porque quería estar inspirado.
 
 La lectura fue genial, sin embargo quedé con ganas de algo más. Contenido especulativo, ideas abstractas, uno que otro comentario de la época, y resoluciones exploratorias, algo estilo H.G. Wells o Arthur C. Clarke.
 
