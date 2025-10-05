@@ -24,7 +24,7 @@ Estar en donde no hay memoria ni instinto que ayude a entender y ninguna faculta
 
 *… We think of ourselves as the Knights of the Holy Contact. This is another lie. We are only seeking Man. We have no need of other worlds. We need mirrors. We don't know what to do with other worlds. A single world, our own, suffices us; but we can't accept it for what it is. We are searching for an ideal image of our own world: we go in quest of a planet, of a civilization superior to our own but developed on the basis of a prototype of our primeval past. At the same time, there is something inside us which we don't like to face up to, from which we try to protect ourselves, but which nevertheless remains, since we don't leave Earth in a state of primal innocence. We arrive here as we are in reality, and when the page is turned and that reality is revealed to us—that part of our reality which we would prefer to pass over in silence—then we don't like it any more. …*
 
-### Algunas recomendaciones del buen GPT
+### Recomendaciones
 
 Ya después armé una lista de libros que me gustan y volví a preguntar.
 
