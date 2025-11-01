@@ -1244,3 +1244,59 @@ Who cares? Who dares to try?
 Most “I can’ts” are really “I won’ts"
 
 Yo lo siento, pero el flow no está a la venta
+
+Al amanecer, repítete: me voy a encontrar con un entrometido, con un desagradecido, con un soberbio, con un falso, con un envidioso, con un insociable: esas cosas les suceden por su desconocimiento de los bienes y los males. Yo, que he comprendido la naturaleza del bien, que es bella, y la naturaleza del mal, que es fea, y la naturaleza de aquel que yerra, que es mi semejante, no por participar de una sangre y una semilla, sino de un intelecto que es parte de la divinidad, no puedo recibir daño de ninguno de ellos,
+
+Piensa desde cuándo estás dejando esto para más tarde y cuántas veces los dioses te han señalado el plazo y tú lo has dejado pasar. Es necesario ya que te des cuenta de qué mundo eres parte y que eres una emanación de aquello que gobierna el mundo; que tienes un límite de tiempo fijado, que, si no utilizas para apaciguarte, se marchará, y tú también te marcharás, y no habrá una segunda vez.
+
+La tarea es estar recto, no enderezado.
+
+El que prefiere su inteligencia, su genio y los ritos de esta virtud no es un actor trágico, no gime, ni necesita soledad ni muchedumbre. Mejor aún: vivirá sin huir ni perseguir.
+
+Apresúrate hacia el fin, deja a un lado tus vacías esperanzas y, si te preocupas por ti, acude en tu auxilio mientras puedas.
+
+El universo, mutación; la vida, opinión.
+
+Afortunado de mí, porque me ha pasado esto y permanezco libre de pena, sin quebrarme por el presente y sin miedo a lo que venga después.
+
+Al alba, cuando te dé pereza levantarte, ten esto a mano: «Me levanto para una tarea de hombre. Aún me enfado si voy a hacer aquello para lo que he nacido y para lo que he venido al mundo. ¿Es que he sido hecho para esto: para estar tumbado caliente entre mantas?».
+
+¿No te das cuenta de cuántas cosas eres capaz de aportar para las que no hay excusa alguna de falta de facultades naturales o de disposición, pero tú prefieres seguir por debajo de ellas? ¿Acaso te sientes obligado a la queja, la mezquindad, la adulación, a echar las culpas a tu cuerpo, a la vanagloria, a maltratar tu alma porque no estás dotado por naturaleza?
+
+Las cosas por sí mismas no tocan el alma ni lo más mínimo, ni encuentran acceso al alma, ni son capaces de dirigirla ni de moverla: es la propia alma la que se dirige y se mueve a sí misma; según sean las cosas que ella juzgue dignas para sí, así serán los accidentes que produzca en sí misma.
+
+Piensa si hasta el día de hoy te es posible decir eso de: «A nadie hacer ni decir mal». Recuerda por qué cosas has pasado y cuáles has sido capaz de soportar, que la historia de tu vida está ya completa y que tu función ha terminado; cuántas cosas bellas has visto, cuántos placeres y dolores has desdeñado, cuántas vanaglorias has dejado de lado, y ante cuántos insensatos te has mostrado sensato.
+
+Cuando las circunstancias te obliguen a turbarte, repliégate rápido en ti mismo y no rompas tu ritmo más de lo que sea necesario. Serás más dueño de la armonía si no dejas de volver a ella.
+
+En los ejercicios gimnásticos también se reciben arañazos y se dan golpes con la cabeza, pero no protestamos ni nos enfadamos ni sospechamos que nuestro rival vaya a ser en lo sucesivo tramposo; ciertamente nos protegemos, pero no porque sea un enemigo ni por sospechas, sino con una benevolencia esquiva. Que sea así también en los restantes ámbitos de la vida: nos afectan muchas cosas de los que son, por decirlo de algún modo, nuestros compañeros de actividades gimnásticas. Cabe la posibilidad, como decía, de esquivarlos y no sospechar ni enemistarse.
+
+Se hace daño el que permanece en su propio engaño e ignorancia.
+
+Es una vergüenza que, en una vida en la que el cuerpo no desfallece, renuncie el alma.
+
+Recobra la cordura y emplázate a ti mismo, despierta y ten en mente que eran sueños los que te turbaban; vuelve a mirar las cosas despierto, como las mirabas antes.
+
+Acóplate a las cosas que te han tocado en suerte; asimismo, ama a los hombres que el destino te ha puesto delante, pero hazlo de verdad.
+
+Si los dioses han decidido sobre mí y sobre lo que tiene que pasarme, han decidido bien: no cabe concebir a un dios decidiendo mal. ¿Qué le puede impulsar a hacerme mal? ¿Qué podrían sacar de ello para sí mismos o para lo común, que es por lo que miran? ... si no deciden sobre nada de lo que nos atañe, me cabe la posibilidad de decidir sobre mí mismo, pues tengo la capacidad de discernir lo que me conviene. Lo conveniente es lo acorde a la constitución y naturaleza de cada uno
+
+Cuando quieras alegrarte, piensa en las cualidades de los que viven contigo, como, por ejemplo, en la energía de uno, en la discreción de otro, en la generosidad de otro, cada uno con una cosa. Nada da tanta alegría como las imágenes de las virtudes representadas en los caracteres de los que conviven con nosotros y reunidas en la mayor concentración posible. Hay que tenerlas a mano.
+
+¿Acaso tengo la inteligencia suficiente para esto o no? Si es suficiente, me serviré de ella para la acción como de un instrumento que me ha entregado la naturaleza del universo. Si no, o bien me apartaré de la acción en favor de otro que pueda llevarla a cabo mejor, o, si no puede así, lo haré como me sea posible y haré uso de mi principio rector para poner a alguien a mi lado que sea capaz de hacer algo oportuno y útil para la comunidad.
+
+No te alteres por el futuro: llegarás a él, si te es preciso, con la misma razón de la que te sirves para el presente.
+
+Resulta vergonzoso que el rostro sea obediente y se moldee y ordene según mande el pensamiento, pero que este último no se deje moldear y ordenar por sí mismo.
+
+Cava en el interior. En el interior está la fuente del bien, que siempre puede seguir brotando mientras tú sigas cavando.
+
+«Ni insoportable ni eterno»
+
+Es patético no rehuir la maldad propia, siendo posible; pero sí rehuir la ajena, lo que es imposible.
+
+... lucha contra ella el que es conducido a su pesar hacia posiciones contrarias a las verdaderas, pues la naturaleza le ha proporcionado recursos, pero él se ha despreocupado de ellos y no es ya capaz de discernir lo falso de lo verdadero.
+
+Has sufrido un millar de veces por no limitarte a que fuera tu parte rectora la que hiciera esas cosas para las que está constituida: ya basta.
+
+¿Te resulta malo o extraño que un ignorante haga lo propio de un ignorante? Mira bien, porque quizá seas tú el que necesite reproche por no esperar que aquel fuera a obrar mal en eso. Pues tú sí tenías los recursos de la razón suficientes para pensar que era posible que él fuera a obrar mal en eso, pero te olvidaste de ellos, y ahora te asombras de su mala acción.
